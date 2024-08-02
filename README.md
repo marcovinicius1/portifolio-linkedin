@@ -1,0 +1,6 @@
+![Captura de tela 2024-08-02 002826](https://github.com/user-attachments/assets/c044bbfa-d453-4880-889b-7734d3aed35d)
+![Captura de tela 2024-08-02 002841](https://github.com/user-attachments/assets/49c8c70d-0eaf-42e0-b5cf-efea57e0f960)
+![Captura de tela 2024-08-02 002901](https://github.com/user-attachments/assets/3cd66851-fd40-4ef2-9d5f-0c55897cc603)
+![Captura de tela 2024-08-02 002909](https://github.com/user-attachments/assets/aec40a35-f9cc-4cd8-bb67-b35bdddbdf7d)
+![Captura de tela 2024-08-02 002918](https://github.com/user-attachments/assets/dd6fc1c8-cc18-45ed-8367-649e7d90a908)
+![Captura de tela 2024-08-02 002926](https://github.com/user-attachments/assets/859359b3-553f-4fe0-8b50-c0ed98dcd548)
